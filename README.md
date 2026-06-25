@@ -1,2 +1,2 @@
-# conhecimentos-sobre-a-natureza
-vamos saber sobre a floresta amazônia
+# curiosidades da maior floresta tropical do mundo
+vamos conhecer informações sobre a floresta amazônia
